@@ -1,1 +1,1 @@
-# greenwichsoccerclub
+# Greenwich Soccer Club
